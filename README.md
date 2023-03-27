@@ -1,1 +1,0 @@
-# dayret_tinnkoff
